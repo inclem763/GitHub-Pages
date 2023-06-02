@@ -1,0 +1,3 @@
+# Мое выражение лица при выполнении домашнего задания:
+
+https://2.downloader.disk.yandex.ru/preview/890074b3f58121f9de591883ee792ab247b8298e6be12e50b1e817e606891b7d/inf/GYWHCdEbcyWmBrA2DCY3yyUG2FdvmQWFuFmkh23qPWH9J5w6Rye3QT0veHuvT3_-iI35EfQJnQrsnqJoClMwTA%3D%3D?uid=1721945398&filename=Screenshot_5.png&disposition=inline&hash=&limit=0&content_type=image%2Fpng&owner_uid=1721945398&tknv=v2&size=1822x859
